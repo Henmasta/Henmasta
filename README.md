@@ -1,4 +1,5 @@
-### Hi, i'm Henmasta, very stupid programmer))) 👋😄
+### Hi, i'm Henmasta, to me fifteen years old))) 👋😄
+### I wanna study 😅✨
 
 <!--
 **Henmasta/Henmasta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
